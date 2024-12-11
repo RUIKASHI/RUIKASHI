@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Dilucandkaeyalover! 
+- 👋 Hi, I’m @RUIKAISHI-! 
 - 👀 I’m interested in genshin impact
 - 🌱 I’m currently learning history
 - 💞️ I’m looking to collaborate on (no one!) 
